@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @commandarmy
+- 👀 I’m interested in Minehut 
+- 🌱 I’m currently learning Skript
+- 💞️ I’m looking to collaborate on A Minecraft server
+- 📫 How to reach me : Emener#0782
